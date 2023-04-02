@@ -2,6 +2,6 @@
 
 I'm Akinori.  
 
-- Engineer at National Institute for Materials Science (NIMS)
+- National Institute of Informatics
 - Buddhist Monk (Jodo Buddhism)📿🙏
 
